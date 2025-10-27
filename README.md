@@ -1,4 +1,4 @@
-<img src= "https://cdn.discordapp.com/attachments/1234083910694994033/1427139668322943027/Untitled598_20251013114127.png?ex=68edc6e3&is=68ec7563&hm=cd734fa0ee36be47b6807092f2fee8b4fc62f6a7d5937835f3a98b6e75357625&" width="2000" height="2000" />
+<img src= "https://media.discordapp.net/attachments/1234083910694994033/1427139668322943027/Untitled598_20251013114127.png?ex=69003be3&is=68feea63&hm=d891958b6950d368a73929147e4b516fa13a964ceebe1d083fc289b7e7b329b8&=&format=webp&quality=lossless&width=1104&height=683" width="2000" height="2000" />
 
 <t>「 
 ![](https://komarev.com/ghpvc/?username=itssillyywillyy&label=sillies&color=yellowgreen)
