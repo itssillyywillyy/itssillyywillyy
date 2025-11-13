@@ -6,10 +6,9 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=bandwidth&weight=300&size=25&letterSpacing=yes&pause=1000&color=21835B&center=true&vCenter=true&width=1080&lines=...;I-iv%23n..%3F;....;L-look..+i-im+sorry..+if+I+haven't+Realized..+your..;...;Actions+t-towards+me...;I'm+sorry+iv%23n..+I+thy+for+you+to+forgive+me.;....%3F;...)](https://git.io/typing-svg)
 
-<h5><p align="center">
+<h6><p align="center">
 🌙 offtab or afk | ⛔ busy chitchatting w gng
-</p>h5>
-
-<h6>
+</p>
+  
   read strawpage ˖𓂃.
 </h6>
