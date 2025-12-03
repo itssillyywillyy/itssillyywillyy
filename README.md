@@ -1,14 +1,19 @@
-<img src= "https://media.discordapp.net/attachments/1146739586530287647/1437035641010651307/Untitled610_20251109184833.png?ex=6911c73b&is=691075bb&hm=021c60b85e91fbd976b0ad3ea16d52a43c50a86901d98cb21a86a1e628f2a752&=&format=webp&quality=lossless&width=1101&height=636" width="2000" height="2000" />
+<p align="center">
+  <img width="500" height="300" alt="Untitled172_20251203150512" src="https://github.com/user-attachments/assets/52e4adc2-cb03-42c3-8ea7-35cc30cfd53b"/>
+</p>
 
 <t>「 
 ![](https://komarev.com/ghpvc/?username=itssillyywillyy&label=sillies&color=ff69b4)
 </t> 」જ⁀➴ <i>visitors . . </i>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=bandwidth&weight=300&size=25&letterSpacing=yes&pause=1000&color=21835B&center=true&vCenter=true&width=1080&lines=...;I-iv%23n..%3F;....;L-look..+i-im+sorry..+if+I+haven't+Realized..+your..;...;Actions+t-towards+me...;I'm+sorry+iv%23n..+I+thy+for+you+to+forgive+me.;....%3F;...)](https://git.io/typing-svg)
+<p align="center">
+  <img width="350" height="300" alt="Untitled171_20251203150441" src="https://github.com/user-attachments/assets/e5c23679-cdd0-4d7e-a7d2-ae098ef901b4"/>
+</p>
 
 <h6><p align="center">
 🌙 offtab/away | ⛔ busy talking w gng | 🟢 pls int me i beg
 </p>
   
-  read strawpage ˖𓂃.
-</h6>
+<p align="center"> <img width="500" height="300" alt="Untitled172_20251203150517" src="https://github.com/user-attachments/assets/387adf13-6567-4c89-ab1b-3c21dee0f0ec" />
+
+<h6> read strawpage ˖𓂃. </h6>
